@@ -1,2 +1,2 @@
 
-https://malinovaya0iriska.github.io/game-cath-dott/index.html
+https://malinovaya0iriska.github.io/game-cath-dott/
